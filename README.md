@@ -1,1 +1,1 @@
-what name i go by? whether or not you can sit within 2 pixels of me? what i'm doing in our house? you say such silly words! rent's due in 3 days btw
+what name i go by? whether or not you can sit within 2 pixels of me? what i'm doing in our house? you say such silly sounds! rent's due in 3 days
