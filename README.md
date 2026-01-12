@@ -10,4 +10,3 @@ hi i'm one three i don't go by any other name and i like new people <br>
 (and i clown around)
 <br>
 <br>
-<br> [@6shswag](https://github.com/6shswag) yo
