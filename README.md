@@ -7,7 +7,7 @@
 <br>
 <br>
 hello it is me  <br>
-my one (1) trait is that i am incredibly sane and i write cool words about my friends sometimes<br>
+my one (1) trait is that i am incredibly sane and i say cool words about my friends sometimes<br>
 if you like cool words written about you let's clown together
 <br>
 <br>
