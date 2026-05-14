@@ -6,7 +6,9 @@
 <br>
 <br>
 <br>
-i am not dead i did not unfriend you and i am on a trip and i Will return once more.......... :o) :o) :o)
+clown who sees situations and situations who see clown
+(friends my internet is really interesting as of now. Help)
+(not-friends let's be friends. clowns are always friendly)
 <br>
 <br>
 <br>
@@ -15,3 +17,6 @@ i am not dead i did not unfriend you and i am on a trip and i Will return once m
 <br>
 <br>
 <br>
+
+
+
